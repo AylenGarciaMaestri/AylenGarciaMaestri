@@ -14,7 +14,7 @@
 - :computer:Trabajando en proyectos independientes.
 - :student: Capacitandome en robotica educativa.
 - :thinking: Abierta a nuevas oportunidades de trabajo.  
-- 🚀 En mis tiemppos libres, disfruto la actividad fisica 🏋🏻‍♀️, leer 📖, y la musica 🎧. 
+- 🚀 En mis tiempos libres, disfruto de la actividad fisica 🏋🏻‍♀️, leer 📖, y la musica 🎧. 
 - 📫 Puesdes contactarme en: <a href="mailto:aylengarcia.agam@gmail.com">aylengarcia.agam@gmail.com</a>
 - :boom: Puedes visitar mi sitio web en [MY WEBSITE](https://www.linkedin.com/in/aylen-garcia-maestri/).
 <br>
